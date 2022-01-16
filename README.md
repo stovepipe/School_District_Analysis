@@ -46,4 +46,4 @@
 
         3. In reference to the lack of effect that removing the Thomas High School ninth grade math and reading scores had on the score summaries by school spending, school size and school type, the school board can be assured that regardless of the outcome of the investigation into academic dishonesty among ninth graders, the summarys presented remain accurate for decision-making.
 
-        4.
+        4. The reported ninth grade math scores were higher than the district average and contributed to the overall passing percentage of Thomas High School.
